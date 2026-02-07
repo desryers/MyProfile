@@ -1,1 +1,13 @@
-https://www.google.com/search?q=mydei+png&client=tablet-android-xiaomi-terr1-rso2&hs=K3Ip&sca_esv=33099f0e9910c4cc&udm=2&biw=0&bih=777&sxsrf=ANbL-n47JiUu8OCxQmXiHEPvfHz5oBQ5eQ%3A1770443455053&ei=v
+### Hi there 👋
+* 👂 My name is Christopher 
+* 👩 Pronouns: He/Him
+* 🔭 I’m currently working on nothing
+* 🌱 I’m currently learning robotics 
+* 🤝 I’m looking to collaborate with nobody
+* 🤔 I’m looking for help with life
+* 💬 Ask me about nothing
+* 📫 How to reach me: croco1128@gmail.com
+* ❤️ I love doing nothing
+* ⚡ Fun fact: birds fly
+
+<img src="https://cdn.kobo.com/book-images/f1a68315-d7c6-4981-9aea-01d2ab44db16/1200/1200/False/sakamoto-days-vol-5.jpg"/>
